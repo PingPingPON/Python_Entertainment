@@ -1,1 +1,1 @@
-All¨¡h means boom boom boom.
+Allah means boom boom boom.
