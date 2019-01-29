@@ -1,1 +1,1 @@
-Allah means boom boom boom.
+I believe that we will realize China's Dream.
