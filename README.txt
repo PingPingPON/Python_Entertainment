@@ -1,1 +1,1 @@
-“∞÷Ì≈Â∆Ê
+All®°h means boom boom boom.
